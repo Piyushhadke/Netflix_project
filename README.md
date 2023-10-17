@@ -1,1 +1,5 @@
-# Netflix_project
+![Netflex and 1 more page - Profile 1 - Microsoft​ Edge 17-10-2023 07_53_10](https://github.com/Piyushhadke/Netflix_project/assets/148102034/6fb3713d-d427-4c0d-9d19-1d25c0854133)
+![Netflex and 1 more page - Profile 1 - Microsoft​ Edge 17-10-2023 07_53_41](https://github.com/Piyushhadke/Netflix_project/assets/148102034/895eae15-cb52-4ecb-a51b-ad2ed5f867a5)
+![Netflex and 1 more page - Profile 1 - Microsoft​ Edge 17-10-2023 07_54_07](https://github.com/Piyushhadke/Netflix_project/assets/148102034/bb592733-b150-409b-ba2f-9e6f767af06a)
+![Netflex and 1 more page - Profile 1 - Microsoft​ Edge 17-10-2023 07_54_18](https://github.com/Piyushhadke/Netflix_project/assets/148102034/6545a5a4-05c0-4fb1-a1a4-70824f0ba42e)
+![Netflex and 1 more page - Profile 1 - Microsoft​ Edge 17-10-2023 07_54_27](https://github.com/Piyushhadke/Netflix_project/assets/148102034/19da399d-e58d-4337-8db9-4a2955625576)
